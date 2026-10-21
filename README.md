@@ -1,0 +1,1 @@
+# Sesi-3.-Carrier-and-Competition-in-Industrial-era-with-GIS-
